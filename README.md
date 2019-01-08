@@ -1,1 +1,1 @@
-# tejrigami.com
+# tejorigami.com
